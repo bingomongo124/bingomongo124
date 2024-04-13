@@ -1,5 +1,7 @@
 I Am 13 Years Old, Despite My Age I Know A Lot About Hacking, Pentesting, Electronics, Building, Soldering And Fixing Things, So Dont Be Shy To Contact Me About Any Questions Or Problems You May Have And I Will Try My Best To Answer Them For You. (Check Out My Repositorys Because Your Question May Have Already Been Answered There.) 
 
+Getting Into The Pentesting/Hacking Hobby
+--------------------------------------------------------
 If You Are Looking To Get Into The Hobby Of Pentesting And Hacking, I Will Personaly Teach You About Everything There Is To Know About It For Free! Also If You Dont Know What A Flipper Zero Dose Or You Already Have One And Need A Guide On How To Get Started, Once Again I Will Personally Teach You About It, I Am A Professional When It Comes To That Stuff. 
 
 My Background 
